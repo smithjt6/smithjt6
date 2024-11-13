@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @smithjt6
+- 👀 I’m interested in AI/ML, Nuclear Science, Sensor Development
+- 🌱 I’m currently learning how to survive graduate school
+- 💞️ I’m looking to collaborate on nothing at the moment
+- 📫 How to reach me email or linkedin 
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I speak french
